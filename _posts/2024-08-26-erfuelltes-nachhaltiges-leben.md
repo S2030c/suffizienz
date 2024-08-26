@@ -1,3 +1,11 @@
+\---
+
+title: Erfülltes Nachhaltiges Leben
+
+permalink: /erfuelltes-nachhaltiges-leben/
+
+—
+
 In einer Welt, die von Überfluss geprägt ist, mutet die Idee eines genügsamen Lebens zunächst paradox an. Doch die Kehrseite des Konsumwunders offenbart sich immer deutlicher: Ressourcenknappheit, Umweltverschmutzung und eine zunehmende soziale Ungleichheit sind nur einige der Schattenseiten unseres Konsumverhaltens. Die Frage nach einem nachhaltigen Lebensstil wird daher immer dringlicher.
 
 Der Begriff "Genügsamkeit" wird oft mit Verzicht assoziiert. Doch ein genügsames Leben bedeutet nicht, auf alles verzichten zu müssen. Vielmehr geht es darum, bewusste Entscheidungen zu treffen und sich auf das zu konzentrieren, was wirklich wichtig ist. Es bedeutet, den Fokus von Quantität auf Qualität zu verschieben und sich von dem Gedanken zu lösen, dass mehr immer besser ist.

@@ -1,11 +1,3 @@
-\---
-
-title: Die Frage des Überleben auf dem Planeten
-
-permalink: /die-frage-des-ueberleben/
-
-—
-
 **Die Welt steht an einem Wendepunkt.** Ressourcen werden knapper, das Klima verändert sich rasant, und die Auswirkungen sind bereits heute spürbar. Extremwetterereignisse, steigende Meeresspiegel und der Verlust von Biodiversität bedrohen unsere Lebensgrundlagen. Aber ist die Lage wirklich so ernst, dass wir unsere gesamte Lebensweise überdenken müssen?
 
 ## Die Fakten sprechen eine deutliche Sprache:

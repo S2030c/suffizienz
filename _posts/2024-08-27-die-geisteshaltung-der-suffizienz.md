@@ -1,5 +1,3 @@
-## 
-
 In einer Welt, die von Konsum getrieben wird, erscheint die Idee der Suffizienz oft wie ein Fremdkörper. Doch hinter diesem Begriff verbirgt sich eine tiefgreifende Veränderung der Denkweise, die uns dazu einlädt, über **unser Verhältnis zu materiellen Gütern** und unseren Platz auf diesem Planeten neu nachzudenken.
 
 Suffizienz bedeutet nicht Verzicht oder Entbehrung. Es ist vielmehr eine bewusste Entscheidung für ein Leben, in dem wir uns auf das Wesentliche konzentrieren. Es geht darum, die Frage zu stellen: "Was brauche ich wirklich, um glücklich zu sein?" Und die Antwort ist oft überraschend einfach: weniger als wir denken.
